@@ -22,3 +22,4 @@ BE A HUMAN.
 At the end of the day, the well-being of people, organizations, and the world matter to us most. We believe that positivity, respect, and active listening form the basis for success in business ventures, communication, and personal development.
  living in various countries across the African continent. Having experienced a multitude of countries, cultures, and schooling systems at a young age, Juho has always felt at home in changing environments and uncommon contexts.
  
+![more-stairs](https://user-images.githubusercontent.com/1944139/194692307-8c8fbe2e-1e13-431c-aa46-ed0af75aa9b2.jpg)
